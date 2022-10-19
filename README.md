@@ -12,9 +12,9 @@ Independent Tech Lead ~ Developer @ Freelance
 
 ## SOCIAL
 
-[Twitter](https://twitter.com/cmacmillanmarin)\n
-[Unsplash](https://unsplash.com/cmacmillanmarin)\n
-[LinkedIn](https://www.linkedin.com/in/cmacmillanmarin)\n
-[Instagram](https://instagram.com/cmacmillanmarin)\n
+[Twitter](https://www.twitter.com/cmacmillanmarin)  
+[Unsplash](https://unsplash.com/cmacmillanmarin)  
+[Linkedin](https://www.linkedin.com/in/cmacmillanmarin)  
+[Instagram](https://www.instagram.com/cmacmillanmarin)  
 
 [Buy me a coffee](https://www.buymeacoffee.com/cmacmillanmarin)
