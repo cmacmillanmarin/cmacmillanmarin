@@ -1,5 +1,3 @@
-## ABOUT ME
-
 Independent Tech Lead ~ Developer @ Freelance
 
 ## PORTFOLIO
