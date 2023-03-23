@@ -2,11 +2,11 @@ Independent Tech Lead ~ Developer @ Freelance
 
 ## PORTFOLIO
 
-[cmacmillanmarin.com](https://www.cmacmillanmarin.com)
+[macmillan.studio](https://www.macmillan.studio)
 
 ## CONTACT
 
-[christian@cmacmillanmarin.com](mailto:christian@cmacmillanmarin.com)  
+[christian@macmillan.studio](mailto:christian@macmillan.studio)  
 
 ## SOCIAL
 
