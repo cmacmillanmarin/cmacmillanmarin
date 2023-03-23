@@ -1,4 +1,4 @@
-Independent Tech Lead ~ Developer @ macmillan.studio
+Independent Tech Lead ~ Developer @ Freelance
 
 ## PORTFOLIO
 
