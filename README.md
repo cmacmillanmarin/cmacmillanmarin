@@ -1,4 +1,4 @@
-Independent Tech Lead ~ Developer @ Freelance
+Independent Tech Lead—Developer @ Freelance
 
 ## PORTFOLIO
 
