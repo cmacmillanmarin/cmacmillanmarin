@@ -10,5 +10,5 @@ Independent Tech Lead—Developer @ Freelance
 
 ## SOCIAL
 
-[Instagram](https://www.instagram.com/cmacmillanmarin)
-[Linkedin](https://www.linkedin.com/in/cmacmillanmarin)
+- [Instagram](https://www.instagram.com/cmacmillanmarin)
+- [LinkedIn](https://www.linkedin.com/in/cmacmillanmarin)
